@@ -1,8 +1,8 @@
 ## 현재 웹사이트 도메인 이름:
 
-[torrentzota189.com](https://torrentzota189.com)
+[torrentzota190.com](https://torrentzota190.com)
 
-[torrenttop210.com](https://torrenttop210.com)
+[torrenttop211.com](https://torrenttop211.com)
 
 
 > 찾을 수 없는 경우 이 페이지를 북마크에 추가하세요.
